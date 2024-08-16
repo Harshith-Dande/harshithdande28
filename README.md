@@ -1,5 +1,5 @@
-👋 Hi I’m @harshithdande28, a former student of Prasad V Potluri Siddhartha Institute of Technology, I’m currently learning MERN stack and I’m looking to collaborate on the same.
-I post small projects which I learn learn from Udemy 😂 and 📫 reach me: www.linkedin.com/in/harshithdande 
+👋 Hi I’m @harshithdande28, a Masters student at Gerogia State University, I’m currently learning Java Fullstack and I’m looking to collaborate on the same.
+I post small projects which I learn learn from Udemy 😂 and 📫 reach me: www.linkedin.com/in/harshithdande also I like to competetive programming and actively looking for internships. 
 😄 Pronouns: brother from another mother
 ⚡ Fun fact: still unemployed 😁
 
